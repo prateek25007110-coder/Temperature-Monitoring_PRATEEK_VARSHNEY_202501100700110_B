@@ -1,1 +1,0 @@
-# Temperature-Monitoring_PRATEEK_VARSHNEY_202501100700110_B
